@@ -1,4 +1,4 @@
-🦝 To me...You are Trash!<33
+- 🦝 To me...You are Trash!<33
 
 <!---
 racoon-dev/racoon-dev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
